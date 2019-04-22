@@ -21,5 +21,5 @@ PARTE 5.2
 > 
 
 ##
-
+Subo a mayores dos fotos una por cada duda
 
